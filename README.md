@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @wazawskyy
+- 👋 Hi, I’m Walidun Adnan
 - 👀 I’m interested on Tuban
 - 🌱 I’m currently learning at Ronggolawe PGRI University
 
